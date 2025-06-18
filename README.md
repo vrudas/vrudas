@@ -7,3 +7,4 @@
 - 💬 Ask me about comics, gaming, and any geek thematics as I am fully adaptable to new things
 - 📫 How to reach me: vrudas4work@gmail.com
 - ⚡ Fun fact: Retro Gamer and Сollector
+- 🕹️ Here is my games profile: [MelkYI/Hardscar](https://howlongtobeat.com/user/MelkYI/stats)
